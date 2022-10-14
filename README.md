@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ImMrLex
+- 👀 I’m interested in balls
+- 🌱 I’m currently learning python
+- 📫 Discord - MrLex#1860
