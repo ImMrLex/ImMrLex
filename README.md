@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ImMrLex
-- 👀 I’m interested in balls
-- 🌱 I’m currently learning python
-- 📫 Discord - MrLex#1860
+- 👋 ImMrLex
+- 👀 He is mrlex
+- 🌱 No fucking way its mrlex
+- 📫 Discord - ImMrLex
