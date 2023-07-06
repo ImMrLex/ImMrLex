@@ -1,4 +1,4 @@
 - 👋 ImMrLex
 - 👀 He is mrlex
-- 🌱 No fucking way its mrlex
+- 🌱 No way its mrlex
 - 📫 Discord - ImMrLex
